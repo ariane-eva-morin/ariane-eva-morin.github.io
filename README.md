@@ -174,6 +174,8 @@ Hospitality and customer service
 Non-profit and community organizations
 SME business development and mentoring
 
+ --- 
+
 **Community Leadership & Values**
 
 **Current Roles** 
