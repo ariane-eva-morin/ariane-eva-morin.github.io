@@ -8,7 +8,8 @@ PRINCE2 Certified • 15+ Years Expertise • Values-Driven Results
 Delivering impactful transformation projects across education, corporate, and community sectors. Specialized in stakeholder engagement, change management, and building sustainable organizational capability.
 
 Currently: Freelance Project Manager at CCJM Consulting | Trustee at Human Driven AI
-London (Hybrid/Remote) •  +44 (0)7398 823193 •  info@ccjmconsulting.com
+London (Hybrid/Remote) 
+•  +44 (0)7398 823193 •  info@ccjmconsulting.com
 [LinkedIn](https://www.linkedin.com/in/ariane-eva-morin) 
 
 **About Me**
