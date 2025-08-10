@@ -46,14 +46,15 @@ I thrive in environments that value flexibility, innovation, and meaningful impa
 - Leadership coaching and organizational development 
 
 **Featured Projects**
-Brentford School for Girls: Complete Digital Transformation
-Challenge: Leading independent school needed comprehensive rebranding and digital presence overhaul to improve community engagement and market positioning.
-My Role: Marketing & Media Project Manager - Managed multiple concurrent marketing and media projects - Coordinated vendors and stakeholders across departments - Developed and executed integrated digital marketing strategy - Led Press Team initiative, mentoring 10 Sixth Form students
-Results: - Successful rebranding initiative improving public perception - All projects delivered on time and within budget - Measurable enhancement in community engagement - Created sustainable student leadership program
-Skills Demonstrated: Stakeholder Management, Budget Control, Team Development, Brand Strategy, Educational Sector Expertise
+
+**Brentford School for Girls: Digital Transformation**
+**Challenge:** Leading independent school needed comprehensive rebranding and digital presence overhaul to improve community engagement and market positioning.
+**My Role:** Marketing & Media Specialist - Managed multiple concurrent marketing and media projects - Coordinated vendors and stakeholders across departments - Developed and executed integrated digital marketing strategy - Led Press Team initiative, mentoring 10 Sixth Form students
+**Results:** - Successful rebranding initiative improving public perception - All projects delivered on time and within budget - Measurable enhancement in community engagement - Created sustainable student leadership program
+**Skills Demonstrated:** Stakeholder Management, Budget Control, Team Development, Brand Strategy, Educational Sector Expertise
 
 **The Weir Bar: Revenue Growth Through Strategic Marketing**
-Challenge: Local hospitality business needed customer acquisition strategy to drive sustainable revenue growth in competitive market.
+**Challenge:** Local hospitality business needed customer acquisition strategy to drive sustainable revenue growth in competitive market.
 **My Role: Marketing & Business Development Project Manager** 
 - Developed comprehensive customer acquisition strategy
 - Implemented digital marketing and promotional campaigns 
