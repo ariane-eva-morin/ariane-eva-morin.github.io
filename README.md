@@ -10,9 +10,9 @@ Delivering impactful transformation projects across education, corporate, and co
 Currently: Freelance Project Manager at CCJM Consulting | Trustee at Human Driven AI
 London (Hybrid/Remote) 
 •  +44 (0)7398 823193 •  info@ccjmconsulting.com
-[LinkedIn](https://www.linkedin.com/in/ariane-eva-morin) 
-[Download my CV]h (ttps://docs.google.com/document/d/1P7iQe0mcN0DPsqZLkfNc4vY4kZEwKdU-aKsVDbNK1vE/edit?usp=sharing)    
 
+[LinkedIn](https://www.linkedin.com/in/ariane-eva-morin) 
+[Download my CV](https://docs.google.com/document/d/1P7iQe0mcN0DPsqZLkfNc4vY4kZEwKdU-aKsVDbNK1vE/edit?usp=sharing) 
 
 **About Me**
 I'm a PRINCE2-certified project manager with a unique portfolio career approach, combining strategic consulting with community impact leadership. Over 15 years, I've delivered exceptional results across diverse sectors—from corporate transformation at global firms to educational rebranding initiatives that drive measurable community engagement.
