@@ -5,11 +5,13 @@ PRINCE2 Certified • 15+ Years Expertise • Values-Driven Results
 Delivering impactful transformation projects across education, corporate, and community sectors. Specialized in stakeholder engagement, change management, and building sustainable organizational capability.
 
 Currently: Freelance Project Manager at CCJM Consulting | Trustee at Human Driven AI
- London (Hybrid/Remote) •  +44 (0)7398 823193 •  info@ccjmconsulting.com
+London (Hybrid/Remote) •  +44 (0)7398 823193 •  info@ccjmconsulting.com
 LinkedIn • [Download CV] • [Contact Me]
+
 About Me
 I'm a PRINCE2-certified project manager with a unique portfolio career approach, combining strategic consulting with community impact leadership. Over 15 years, I've delivered exceptional results across diverse sectors—from corporate transformation at global firms to educational rebranding initiatives that drive measurable community engagement.
 My approach combines: - Strategic Vision: Translating complex stakeholder needs into actionable project plans - Cultural Alignment: Ensuring every project reflects organizational values and creates sustainable change - Community Focus: Leveraging business expertise to drive positive social impact - Continuous Learning: Currently developing AI integration capabilities for enhanced project delivery
+
 Current Portfolio: - CCJM Consulting Ltd: Freelance Project Manager delivering end-to-end digital and marketing campaigns - Human Driven AI: Trustee, driving ethical AI adoption and responsible innovation - Education Sector: Project leadership and student mentoring across multiple institutions - Community Impact: Founder and former chair of £20K award-winning wellbeing initiatives
 I thrive in environments that value flexibility, innovation, and meaningful impact—where strategic thinking meets practical execution. 
 
