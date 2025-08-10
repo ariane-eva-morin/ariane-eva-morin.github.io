@@ -93,7 +93,7 @@ I thrive in environments that value flexibility, innovation, and meaningful impa
 - Enhanced brand recognition and community presence
 - Established sustainable partnership network
 
-**Skills Demonstrated: Business Development, Digital Marketing, Partnership Building, Revenue Growth, ROI Analysis**
+**Skills Demonstrated:** Business Development, Digital Marketing, Partnership Building, Revenue Growth, ROI Analysis
 
  --- 
 
