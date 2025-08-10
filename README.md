@@ -208,6 +208,13 @@ SME business development and mentoring
 "I believe in using business expertise to create positive behavioral change and meaningful community impact." 
 
  --- 
+
+ "Ariane was my mentor during the National Help To Grow program I participated in this year, and her impact went far beyond mentorship. She demonstrated exceptional project management skills, providing accountability and structured support as my business navigated an intense period of discovery and transformation. Mireya Quiton Tuijtelaars Environmental Engineer, Director | Mia Strada London
+
+ --- 
+
+"Ariane is an exceptional mentor and project manager who brings immense value through her expertise in guiding small business owners toward growth, both professionally and personally. Her ability to break down complex goals into actionable steps, combined with her dedication, passion, and strategic approach, ensures businesses stay on track while feeling supported. It’s been a privilege to witness the transformative impact of her work, as she not only helps businesses grow but empowers their owners to thrive." Tom LetoTom Leto Director of Outreach | LinkedSelling
+
 **Let's Connect**
 Ready to discuss your next strategic project?
 I specialize in helping organizations navigate transformation challenges while maintaining their core values and building sustainable capability. Whether you need project leadership, change management expertise, or strategic consulting, I'd love to explore how we can work together.
