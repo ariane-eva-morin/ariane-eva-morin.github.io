@@ -222,7 +222,7 @@ Ready to discuss your next strategic project?
 I specialize in helping organizations navigate transformation challenges while maintaining their core values and building sustainable capability. Whether you need project leadership, change management expertise, or strategic consulting, I'd love to explore how we can work together.
 
 **Contact Information**
-Email: info@ccjmconsulting.com  Phone: +44 (0)7398 823193  LinkedIn: linkedin.com/in/ariane-eva-morin  Location: London (Available for hybrid/remote work with occasional travel)
+Email: info@ccjmconsulting.com  Phone: +44 (0)7398 823193  - [LinkedIn](https://www.linkedin.com/in/ariane-eva-morin)  -  Location: London (Available for hybrid/remote work with occasional travel)
 
  --- 
 **Current Availability**
