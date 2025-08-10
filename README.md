@@ -43,8 +43,9 @@ I thrive in environments that value flexibility, innovation, and meaningful impa
 - Business mentoring (Enterprise Nation & Small Business Britain certified)
 - Student development and career guidance
 - Team training and skills development
-- Leadership coaching and organizational development 
-
+- Leadership coaching and organizational development
+  
+ --- 
 **Featured Projects**
 
 **Brentford School for Girls: Digital Transformation**
@@ -80,6 +81,7 @@ I thrive in environments that value flexibility, innovation, and meaningful impa
 - Established lasting partnerships with local organizations
 **Skills Demonstrated:** Fundraising, Community Engagement, Program Design, Team Leadership, Social Impact Measurement 
 
+ --- 
 **Professional Experience**
 **Freelance Project Manager | CCJM Consulting Ltd | 2018-Present** 
 - 98% client satisfaction across diverse digital and marketing campaigns
@@ -104,8 +106,10 @@ I thrive in environments that value flexibility, innovation, and meaningful impa
 - Client Host | Hogan Lovells | Premium client service, stakeholder management
 - Founder & Chair | The Gaia Network & Foundation Wellbeing Trust | Community impact, fundraising, program delivery 
 
+ --- 
 **Core Competencies & Qualifications**
-Project Management Excellence
+
+**Project Management Excellence**
 PRINCE2® Foundation Certified (PeopleCert Group, 2024)
 Level 3 Business Coaching & Mentoring (ABM Certified, 2022)
 Agile methodologies and hybrid delivery approaches
@@ -152,8 +156,11 @@ Youth Mentoring & Development
 Community Engagement & Social Impact
 Ethical Business Practices & Transparency
 
+ --- 
+ 
 "I believe in using business expertise to create positive behavioral change and meaningful community impact." 
 
+ --- 
 **Let's Connect**
 Ready to discuss your next strategic project?
 I specialize in helping organizations navigate transformation challenges while maintaining their core values and building sustainable capability. Whether you need project leadership, change management expertise, or strategic consulting, I'd love to explore how we can work together.
@@ -161,12 +168,15 @@ I specialize in helping organizations navigate transformation challenges while m
 **Contact Information**
 Email: info@ccjmconsulting.com  Phone: +44 (0)7398 823193  LinkedIn: linkedin.com/in/ariane-eva-morin  Location: London (Available for hybrid/remote work with occasional travel)
 
+ --- 
 **Current Availability**
 Immediate start available
 Flexible engagement models: Contract, freelance, or permanent roles
 Preferred engagement: 6-12 month strategic projects with meaningful impact
 Travel: London-wide with occasional travel (values-aligned organizations)
 
+ --- 
+ 
 **Let's Start a Conversation**
 Whether you're looking for strategic project leadership, organizational transformation support, or community impact initiatives, I bring the experience, values alignment, and results focus to help you succeed.
 Contact me today to discuss your project needs.
