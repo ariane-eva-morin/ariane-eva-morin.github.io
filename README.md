@@ -7,16 +7,23 @@ Strategic Project Manager & Business Transformation Specialist**
 PRINCE2 Certified • 15+ Years Expertise • Values-Driven Results
 Delivering impactful transformation projects across education, corporate, and community sectors. Specialized in stakeholder engagement, change management, and building sustainable organizational capability.
 
-Currently: Freelance Project Manager at CCJM Consulting | Trustee at Human Driven AI
+**Currently:** 
+Freelance Project Manager at CCJM Consulting | Trustee at Human Driven AI
 London (Hybrid/Remote) 
-•  +44 (0)7398 823193 •  info@ccjmconsulting.com
+- +44 (0)7398 823193 
+- info@ccjmconsulting.com
+- [LinkedIn](https://www.linkedin.com/in/ariane-eva-morin) 
+- [Download my CV](https://docs.google.com/document/d/1P7iQe0mcN0DPsqZLkfNc4vY4kZEwKdU-aKsVDbNK1vE/edit?usp=sharing) 
 
-[LinkedIn](https://www.linkedin.com/in/ariane-eva-morin) 
-[Download my CV](https://docs.google.com/document/d/1P7iQe0mcN0DPsqZLkfNc4vY4kZEwKdU-aKsVDbNK1vE/edit?usp=sharing) 
 
 **About Me**
 I'm a PRINCE2-certified project manager with a unique portfolio career approach, combining strategic consulting with community impact leadership. Over 15 years, I've delivered exceptional results across diverse sectors—from corporate transformation at global firms to educational rebranding initiatives that drive measurable community engagement.
-My approach combines: - Strategic Vision: Translating complex stakeholder needs into actionable project plans - Cultural Alignment: Ensuring every project reflects organizational values and creates sustainable change - Community Focus: Leveraging business expertise to drive positive social impact - Continuous Learning: Currently developing AI integration capabilities for enhanced project delivery
+
+**My approach combines:**  
+- Strategic Vision: Translating complex stakeholder needs into actionable project plans 
+- Cultural Alignment: Ensuring every project reflects organizational values and creates sustainable change
+- Community Focus: Leveraging business expertise to drive positive social impact
+- Continuous Learning: Currently developing AI integration capabilities for enhanced project delivery
 
 **Current Portfolio:**
 - CCJM Consulting Ltd: Freelance Project Manager delivering end-to-end digital and marketing campaigns 
@@ -51,36 +58,57 @@ I thrive in environments that value flexibility, innovation, and meaningful impa
 **Featured Projects**
 
 **Brentford School for Girls: Digital Transformation**
+
 **Challenge:** Leading independent school needed comprehensive rebranding and digital presence overhaul to improve community engagement and market positioning.
-**My Role:** Marketing & Media Specialist - Managed multiple concurrent marketing and media projects - Coordinated vendors and stakeholders across departments - Developed and executed integrated digital marketing strategy - Led Press Team initiative, mentoring 10 Sixth Form students
-**Results:** - Successful rebranding initiative improving public perception - All projects delivered on time and within budget - Measurable enhancement in community engagement - Created sustainable student leadership program
+
+**My Role: Marketing & Media Specialist** 
+- Managed multiple concurrent marketing and media projects
+- Coordinated vendors and stakeholders across departments
+- Developed and executed integrated digital marketing strategy
+- Led Press Team initiative, mentoring 10 Sixth Form students
+
+**Results:**
+  - Successful rebranding initiative improving public perception
+  - All projects delivered on time and within budget
+  - Measurable enhancement in community engagement
+  - Created sustainable student leadership program
+
 **Skills Demonstrated:** Stakeholder Management, Budget Control, Team Development, Brand Strategy, Educational Sector Expertise
 
+ --- 
+
 **The Weir Bar: Revenue Growth Through Strategic Marketing**
+
 **Challenge:** Local hospitality business needed customer acquisition strategy to drive sustainable revenue growth in competitive market.
+
 **My Role: Marketing & Business Development Project Manager** 
 - Developed comprehensive customer acquisition strategy
 - Implemented digital marketing and promotional campaigns 
 - Built strategic partnerships and community connections
 - Focused on long-term business viability and brand strengthening
+
 **Results:**
 - 20% increase in business revenue during 6-month contract
 - Significant social media engagement and audience growth
 - Enhanced brand recognition and community presence
 - Established sustainable partnership network
+
 **Skills Demonstrated: Business Development, Digital Marketing, Partnership Building, Revenue Growth, ROI Analysis**
 
 **Foundation Wellbeing Trust: Community Impact Leadership**
 **Challenge:** Design and implement preventative community wellbeing program addressing mental and physical health needs in Hounslow.
+
 **My Role:** Founder & Chair - Secured £20,000 funding through Big Lottery & Awards For All 
 - Designed comprehensive community outreach strategy
 - Built and trained volunteer team
 - Managed performance evaluation and funder reporting
+
 **Results:**
 - Successfully delivered award-winning community program
 - Nominated finalist: Hounslow Small Business Awards 2018 for positive community impact
 - Created sustainable community wellbeing framework
 - Established lasting partnerships with local organizations
+
 **Skills Demonstrated:** Fundraising, Community Engagement, Program Design, Team Leadership, Social Impact Measurement 
 
  --- 
@@ -144,19 +172,31 @@ Non-profit and community organizations
 SME business development and mentoring
 
 **Community Leadership & Values**
-Current Roles
-Trustee | Human Driven AI | 2025-Present - Driving ethical AI adoption and responsible innovation practices - Contributing to strategic direction of AI education and implementation - Promoting diversity and inclusion in technology sector
-Volunteer Governor | Primary School, Buruni | 2025-Present - Supporting educational governance and strategic school development - Contributing project management expertise to school improvement initiatives
-Founding Leadership
-Founder & Chair | Foundation Wellbeing Trust | 2014-2020 - Created award-winning £20K community wellbeing program - Hounslow Small Business Awards 2018 Finalist for community impact - Successfully managed fundraising, team training, and program delivery - Established sustainable frameworks for ongoing community support
+
+**Current Roles** 
+
+**Trustee**  | Human Driven AI | 2025-Present 
+- Driving ethical AI adoption and responsible innovation practices
+- Contributing to strategic direction of AI education and implementation
+- Promoting diversity and inclusion in technology sector
+
+**Volunteer Governor**  | Primary School, Buruni | 2025-Present 
+- Supporting educational governance and strategic school development
+- Contributing project management expertise to school improvement initiatives
+
+**Founding Leadership** | Founder & Chair | Foundation Wellbeing Trust | 2014-2020 
+- Created award-winning £20K community wellbeing program
+- Hounslow Small Business Awards 2018 Finalist for community impact
+- Successfully managed fundraising, team training, and program delivery
+- Established sustainable frameworks for ongoing community support
 
 **Core Values**
-Sustainability & Environmental Responsibility
-Mental Health & Wellbeing Advocacy
-Women's Leadership & Empowerment
-Youth Mentoring & Development
-Community Engagement & Social Impact
-Ethical Business Practices & Transparency
+- Sustainability & Environmental Responsibility
+- Mental Health & Wellbeing Advocacy
+- Women's Leadership & Empowerment
+- Youth Mentoring & Development
+- Community Engagement & Social Impact
+- Ethical Business Practices & Transparency
 
  --- 
  
