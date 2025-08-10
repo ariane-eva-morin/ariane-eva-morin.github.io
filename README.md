@@ -95,10 +95,13 @@ I thrive in environments that value flexibility, innovation, and meaningful impa
 
 **Skills Demonstrated: Business Development, Digital Marketing, Partnership Building, Revenue Growth, ROI Analysis**
 
+ --- 
+
 **Foundation Wellbeing Trust: Community Impact Leadership**
 **Challenge:** Design and implement preventative community wellbeing program addressing mental and physical health needs in Hounslow.
 
-**My Role:** Founder & Chair - Secured £20,000 funding through Big Lottery & Awards For All 
+**My Role:Founder & Chair**
+- Secured £20,000 funding through Big Lottery & Awards For All 
 - Designed comprehensive community outreach strategy
 - Built and trained volunteer team
 - Managed performance evaluation and funder reporting
