@@ -1,3 +1,6 @@
+![Ariane Eva Morin](Ariane Eva Morin profile-photo.jpg)
+
+
 Ariane Eva Morin
 Strategic Project Manager & Business Transformation Specialist
 
