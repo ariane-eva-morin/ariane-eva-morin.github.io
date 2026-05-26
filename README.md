@@ -75,7 +75,7 @@ My dual background as a PRINCE2-certified Project Manager and a Strategic People
 
 **Core Competencies & Qualifications**
 * **PRINCE2® Foundation Certified** (PeopleCert, 2024)
-* **Introduction to Generative AI** (Google Cloud)
+* **Introduction to Generative AI** (Google Cloud, May 2026)
 * **Level 3 Business Coaching & Mentoring** (ABM, 2022)
 * **Languages:** French (Native), English (Fluent), Spanish (Conversational)
 
